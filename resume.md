@@ -16,7 +16,7 @@ Community and Regional Planning B.S.
 ## Work Experience
 ###### AppalCART 
 - Apprentice        Jun 2023 - Present
-    - 
+    - even more work and stuff 
 
 ###### APPALACHIAN DINING SERVICES	Boone, NC
 - Barista     		Aug 2022 – May 2023
